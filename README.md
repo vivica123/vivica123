@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vivica123
-- 👀 I’m interested in learning nee things
+- 👀 I’m interested in learning new things
 - 🌱 I’m currently learning web3
 - 💞️ I’m looking to collaborate on projects 
 - 📫 How to reach me email;achonwavivica@gmail.com
